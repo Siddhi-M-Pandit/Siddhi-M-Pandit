@@ -28,7 +28,7 @@
 - She/Her
 
 ## ⚡ Fun facts about me ... 
-- I love learning new language (non-programming ones) and currently am learning Japanese 🇯🇵 
+- I love learning new language (non-programming ones) and currently am learning Japanese 💮 
 - I enjoy solving NYT Sudoku, Crosswords & Wordle 🧩 
 - I love baking and experimenting with new recipes! 🍪 
 
